@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @MilitantPanico
-- 👀 I’m interested in Existing
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning How to Learn Something
-- 💞️ I’m looking to collaborate on Stuff
-- 📫 How to reach me Fart
+- 📫 How to reach me: you can't
 - 😄 Pronouns: He/Li/Cop/Ter
 - ⚡ Fun fact: I Drink Piss
 
